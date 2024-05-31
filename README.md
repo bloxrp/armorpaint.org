@@ -1,2 +1,0 @@
-# armorpaint.org
-armorpaint.org
